@@ -1,1 +1,1 @@
-# Thai-League.
+# Thai
